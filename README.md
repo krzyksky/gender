@@ -1,3 +1,3 @@
 # gender
 
-it/its kitten thing
+she/they foxgirl :3 
